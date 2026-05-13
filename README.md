@@ -372,4 +372,4 @@ This project was submitted in partial fulfilment of BAN6440 at Nexford Universit
 
 ---
 
-*Ganiu Olalekan Mustapha — Nexford University — May 2026*
+*Ganiu Olalekan Mustapha | Nexford University | May 2026*
